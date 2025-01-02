@@ -1,6 +1,6 @@
 # 😎 Hi All:
 
-🔭 Aspiring ML Developer <br>🤝 I’m looking for help with<br>🌱 I’m currently learning<br>
+🔭 Aspiring ML Developer <br>🤝 Looking forward to help<br>🌱 I’m currently learning<br>
 
 
 ## 🌐 Socials:
